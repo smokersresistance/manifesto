@@ -7,7 +7,7 @@
 
 As smokers, we recognize the threat it poses to our health and the ones that are around us. We would like to appreciate the BuildNext corporate and the HR department for publishing such a circular in an effort to uplift the quality of life for those who practice smoking. This grand gesture is a giant leap in compassion towards the smokers at first glance. It is the decisive intervention of HR coupled with a strategically organized BuildNext Corporate that makes smoke-free workplace policy a reality. Emphasis on the HR department's capability for smoothly rolling out the policy and helping the employees transition into new ways of life around the company.
 
-- #### **However, as an employee and as citizens of the biggest democracy in the world, we are forced to question certain long term intentions behind the newly constructed policy**
+- #### **However, as employees and as citizens of the biggest democracy in the world, we are forced to question certain long term intentions behind the newly constructed policy**
 
 
 > Smoke-Free Workplace Policy
@@ -38,7 +38,7 @@ The smell of tobacco is not proven to be a harmful source of radiation. It is no
 
 This move is strategized to maximize corporate profits, since they know beforehand that it would be impossible for certain employees to quit smoking HR and Corporate is expoliting the opportunity.
 
-Therefore logic dictates that this policy nothing but a ploy to defraud honest hard working human beings of their deserved salary.
+- #### Therefore logic dictates that this policy nothing but a ploy to defraud honest hard working human beings of their deserved salary.
 
 This is a direct violation of Article 23 of the Indian Constitution. 
 
