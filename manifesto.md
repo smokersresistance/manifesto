@@ -1,5 +1,6 @@
 
 
+
 # Corporate oppression and after-effects.
 #### *A manifesto from the smokers of BuildNext.*
 
@@ -19,7 +20,7 @@ The smell of tobacco is not proven to be a harmful source of radiation, and it i
 
 
 
- Upon thorough analysis of the third highlight of the policy, a more diabolical and sinister intent was revealed to us.The human resources department conveniently excludes the smoking status of an individual prior to employment. Further, we believe that HR has illegaly collected enough data over the years on the employees to target smokers. Smoking is a very serious addiction. Nicotine is the most addictive substance under the sun. It would be impossible for a smoker to quit because a new policy is formed. 
+ Upon thorough analysis of the third highlight of the policy, a more diabolical and sinister intent was revealed to us. The human resources department conveniently excludes the smoking status of an individual prior to employment. Further, we believe that HR has illegally collected enough data over the years on the employees to target smokers. Smoking is a very serious addiction. Nicotine is the most addictive substance under the sun. It would be impossible for a smoker to quit because a new policy is formed. 
 
 - #### Armed with a lethal combination of information about the identity of the smokers and the nature of their addiction BuildNext Corporate and HR are targetting employees and exploiting their addiction to deny payment.
 
@@ -27,7 +28,7 @@ We argue that this move is strategized to increase their profits as they know be
 
 - #### This is a form of forced labor which means involuntary work without any remuneration. In other words, it can be said that a person is compelled to work against his will without being paid for it.
 
-This would also extend to any employee who enters the premises with a lingering smell of tobacco.It is of our opinion that, if the human resources department had the best interests of the employees in mind they would have allocated funds for the smokers to visit deaddiction centers which many are unable to afford because of their troubling financial situation. This is a calculated move to harass smokers and make profits off of it. We have reason to believe that HR is also involved in publically shaming smokers too.
+This would also extend to any employee who enters the premises with a lingering smell of tobacco. It is of our opinion that, if the human resources department had the best interests of the employees in mind they would have allocated funds for the smokers to visit deaddiction centers which many are unable to afford because of their troubling financial situation. This is a calculated move to harass smokers and make profits off of it. We have reason to believe that HR is also involved in publically shaming smokers too.
 
 
 
@@ -37,14 +38,10 @@ We must lodge a complaint to the Ministry of Labour and Employment. https://labo
 
 #### We condemn this inhumane act and violation of basic rights by the HR department and urge that proper actions are taken against it by restructuring the department by keeping basic human courtesy and quality of life for the employees while forming policies.
 
-*We call upon our fellow colleague's smokers and non-smokers alike to act by sending emails and lodging complaints and unite to fight this abominable policy. Because this isnt simply targeted at smokers but a larger sign of opression from the hgihest levels of corporate. These are the after effects of not lingering smell of tobacco but that of linger systemic opression.
+*We call upon our fellow colleague's smokers and non-smokers alike to act by sending emails and lodging complaints and unite to fight this abominable policy. Because this isn't simply targeted at smokers but a larger sign of oppression from the highest levels of corporate. These are the after-effects of not lingering smell of tobacco but that of linger systemic oppression.
 *
 
 ------------
 
 
 ------------
-
-
-
-
