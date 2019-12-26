@@ -34,4 +34,4 @@ We must lodge a complaint to the Ministry of Labour and Employment. https://labo
 
 > **We condemn this inhumane act and violation of basic rights by the HR department and urge that proper actions are taken against it by restructuring the department by keeping basic human courtesy and quality of life for the employees while forming policies.**
 
-We call upon our fellow colleague's smokers and non-smokers alike to act by sending emails and lodging complaints and unite to fight this abominable policy. 
+We call upon our fellow colleague's smokers and non-smokers alike to act by sending emails and lodging complaints and unite to fight this abominable policy. Because this isnt simply targeted at smokers but a larger sign of opression from the hgihest levels of corporate. These are the after effects of not lingering smell of tobacco but that of linger systemic opression.
