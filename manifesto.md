@@ -17,7 +17,7 @@ The smell of tobacco is not proven to be a harmful source of radiation, and it i
 
 - #### Therefore it is repulsive to us that certain members of HR and corporate do not keep basic human courtesy in mind while forming policies. We can not allow in this great democratic nation to stand by idle while policies are formed that curtail the demands of basic human courtesy.
 
-[========]
+
 
  Upon thorough analysis of the third highlight of the policy, a more diabolical and sinister intent was revealed to us.The human resources department conveniently excludes the smoking status of an individual prior to employment. Further, we believe that HR has illegaly collected enough data over the years on the employees to target smokers. Smoking is a very serious addiction. Nicotine is the most addictive substance under the sun. It would be impossible for a smoker to quit because a new policy is formed. 
 
@@ -29,7 +29,7 @@ We argue that this move is strategized to increase their profits as they know be
 
 This would also extend to any employee who enters the premises with a lingering smell of tobacco.It is of our opinion that, if the human resources department had the best interests of the employees in mind they would have allocated funds for the smokers to visit deaddiction centers which many are unable to afford because of their troubling financial situation. This is a calculated move to harass smokers and make profits off of it. We have reason to believe that HR is also involved in publically shaming smokers too.
 
-[========]
+
 
 
 But thankfully our Constitution protects us from such exploitation.
@@ -46,5 +46,5 @@ We must lodge a complaint to the Ministry of Labour and Employment. https://labo
 ------------
 
 
-------------
+
 
