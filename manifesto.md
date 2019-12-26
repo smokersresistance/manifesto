@@ -45,7 +45,8 @@ This is a direct violation of Article 23 of the Indian Constitution.
 - #### This is a form of forced labor which means involuntary work without any remuneration. A person is compelled to work against his will without being paid for it.
 
 
-If the human resources department had the best interests of the employees in mind they would have allocated funds for the smokers to visit deaddiction centers which many are unable to afford because of their troubling financial situation.
+
+- #### If the human resources department had the best interests of the employees in mind they would have allocated funds for the smokers to visit deaddiction centers which many are unable to afford because of their troubling financial situation.
 
 
 But thankfully our Constitution protects us from such exploitation.
